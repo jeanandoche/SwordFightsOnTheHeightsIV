@@ -17,3 +17,15 @@
   <br>
   <h3>—— KATAMARI , femtanyl .</h3>
 </center>
+
+- - -
+
+<center>
+  so like this is a wip
+  <br>
+  it'll be updated and finished real soon though! just trying to find borders n other graphicstuffs
+</center>
+
+- - -
+
+<img src=""/>
