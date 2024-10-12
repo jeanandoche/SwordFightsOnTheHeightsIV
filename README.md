@@ -24,6 +24,8 @@
   so like this is a wip
   <br>
   it'll be updated and finished real soon though! just trying to find borders n other graphicstuffs
+  <br>
+  discord user is dirkpilled feel free to add me i like talking to people
 </center>
 
 - - -
