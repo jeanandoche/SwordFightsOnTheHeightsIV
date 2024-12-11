@@ -25,7 +25,7 @@
   <br>
   it'll be updated and finished real soon though! just trying to find borders n other graphicstuffs
   <br>
-  discord user is dirkpilled feel free to add me i like talking to people
+  discord user is <i>crockertier</i> feel free to add me i like talking to people
 </center>
 
 - - -
