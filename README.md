@@ -22,9 +22,7 @@
 
 <center>
   <p>hello! my name is <i>achilles</i>! i'm 17 years old and i enjoy homestuck, greek mythology, and robots</p>
-  <br>
   <p>i'm active on ponytown through various times during the day, usually during school, as i use ponytown during school hours to communicate with my partner</p>
-  <br>
   <p>my discord user is <i>smuppetpuppet</i>, feel free to add me! i like talking to people</p>
 </center>
 
