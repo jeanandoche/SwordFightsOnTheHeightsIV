@@ -21,11 +21,11 @@
 - - -
 
 <center>
-  so like this is a wip
+  hello! my name is <i>achilles</i>! i'm 17 years old and i enjoy homestuck, greek mythology, and robots
   <br>
-  it'll be updated and finished real soon though! just trying to find borders n other graphicstuffs
+  i'm active on ponytown through various times during the day, usually during school, as i use ponytown during school hours to communicate with my partner
   <br>
-  discord user is <i>crockertier</i> feel free to add me i like talking to people
+  my discord user is <i>smuppetpuppet</i>, feel free to add me! i like talking to people
 </center>
 
 - - -
