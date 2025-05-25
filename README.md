@@ -23,7 +23,7 @@
 <center>
   <p>hello! my name is <i>sword</i>! i'm 17 years old and i enjoy rain world, half life, roblox, greek mythology, and robots!</p>
   <p>i'm active on ponytown through various times during the day, usually during school, as i use ponytown during school hours to communicate with my partner</p>
-  <p>my discord user is <i>moronbot</i>, feel free to add me! i like talking to people</p>
+  <p>my discord user is <i>serverketor</i>, feel free to add me! i like talking to people</p>
   <p>i also believe that dni lists don't do shit but if i don't like you i will be blocking you——i am not obligated to provide a reason</p>
   <br>
   <p>i like to dabble with css and html coding! you can find the site(s) that i work on <a href="https://warwithoutreason.nekoweb.org">here</a></p>
