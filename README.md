@@ -12,7 +12,7 @@
   <p>ehhh my name is dominique de koet and i'm very fixated on the napoleonic wars and anything preceeding the 21st century in regards to literature and history</p>
   <p><b>I DO NOT CONDONE THE ACTIONS OF ANY HISTORICAL FIGURES I POST / TALK ABOUT</b>
   <br>
-  that being said do not fucking interact with me if you're a neo-nazi?? hello?? no one like that has int'd before thank god but i feel the need to put it out there regardless</p>
+  also do not fucking interact with me if you're a neo-nazi?? hello?? no one like that has int'd before thank god but i feel the need to put it out there regardless</p>
   <br>
   <p>our discord is <i>.panacean</i> please send me a friend request! i love making friends and meeting new people :)</p>
   <br>
